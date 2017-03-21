@@ -4,7 +4,6 @@ These resonate the most now, but they may not be relevant to you right now
 
 
 Retrain Your Mind - never heard, but it might be very relevant to you   
-
 https://www.youtube.com/watch?v=xp2qjshr-r4
 
 
@@ -17,7 +16,6 @@ https://www.youtube.com/watch?v=7fSLbC-1b0Q
 
 
 Don't Let Anyone else Define Who You Are 
-
 https://www.youtube.com/watch?v=U6jRWI8_kXk
 
 
@@ -25,32 +23,26 @@ https://www.youtube.com/watch?v=U6jRWI8_kXk
 These resonated the most from 2013 through 2016
 
 Why do we fall - first one I ever saw on the topic, good place to start  
-
 https://www.youtube.com/watch?v=mgmVOuLgFB0
 
 
 Hard Times - relevant to current bullshit  
-
 https://www.youtube.com/watch?v=GwfhH8yDZQo
 
 
 Change - when you want to crawl out of the bullshit  
-
 https://www.youtube.com/watch?v=_aAA9-edO3I
 
 
 Potential - relevant to giftedness  
-
 https://www.youtube.com/watch?v=nb6iN6nGSgo
 
 
 Lost but Won - once you know your purpose  
-
 https://www.youtube.com/watch?v=FhzNSPiqO0M
 
 
 Keep Digging - probably the most insightful one, to keep you going  
-
 https://www.youtube.com/watch?v=PWUftpAMy0Y
 
 
@@ -58,11 +50,9 @@ https://www.youtube.com/watch?v=PWUftpAMy0Y
 Interviews and shit  
 
 Dushun Wang - the hero's journey  
-
 https://www.youtube.com/watch?v=YA0g2T7z5ic
 
 
 Fisherman - Funny at first... gets deep fast  
-
 https://www.youtube.com/watch?v=KxGRhd_iWuE
 
