@@ -9,12 +9,10 @@ https://www.youtube.com/watch?v=xp2qjshr-r4
 
 
 2 Hour Marathon - I linked to the where the REALLY good shit starts   
-
 https://youtu.be/40aLZvo3nQc?t=1h52m18s
 
 
 1 Hour Marathon - probably a great intro to this stuff   
-
 https://www.youtube.com/watch?v=7fSLbC-1b0Q
 
 
