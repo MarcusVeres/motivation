@@ -1,6 +1,6 @@
 
-### Current 
-These resonate the most now, but they may not be relevant to you right now
+## Current 
+**These resonate the most now, but they may not be relevant to you right now**
 
 
 Retrain Your Mind - never heard, but it might be very relevant to you   
@@ -19,8 +19,8 @@ Don't Let Anyone else Define Who You Are
 https://www.youtube.com/watch?v=U6jRWI8_kXk
 
 
-### The Original Series
-These resonated the most from 2013 through 2016
+## The Original Series
+**These resonated the most from 2013 through 2016**
 
 Why do we fall - first one I ever saw on the topic, good place to start  
 https://www.youtube.com/watch?v=mgmVOuLgFB0
@@ -46,8 +46,8 @@ Keep Digging - probably the most insightful one, to keep you going
 https://www.youtube.com/watch?v=PWUftpAMy0Y
 
 
-### Perspectives
-Interviews and shit  
+## Perspectives
+**Interviews and shit**
 
 Dushun Wang - the hero's journey  
 https://www.youtube.com/watch?v=YA0g2T7z5ic
